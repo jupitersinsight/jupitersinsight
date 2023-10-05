@@ -1,8 +1,5 @@
-# Hello, it's me speaking 🎤
+# Benvenuto! 🎤 
 
-Welcome aboard! This is my personal log about my journey across the mighty seas of IT!  
-You will find topics about networking, cybersecurity, systems management.  
-
-Feel free to PM me! 🤝⬇️
-- Discord: **jack in the orbit\#0109**
+Non esitare a contattarmi! 🤝⬇️
+- Discord: **nottheotherguy**
 - Linkedin: **https://it.linkedin.com/in/ac92**
