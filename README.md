@@ -1,4 +1,4 @@
-# Benvenuto! 🎤 
+# Welcome!! 💙
 
-Non esitare a contattarmi! 🤝⬇️
-- Linkedin: **https://it.linkedin.com/in/ac92**
+- [**Linkedin**](https://it.linkedin.com/in/ac92) 📰  
+- [**Blog**](https://blog.andreacalarco.com**) 📝
